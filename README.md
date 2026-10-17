@@ -10,3 +10,6 @@ Sip mantap hebat keren,tugas nya tolong jangan berat berat wth you mean foto sam
 
 ## Kesan Pesan Cluster 3 Sejauh Ini 
 Sip mantap fasil keren informatif banyak omong juga tapi perhatian tidak pelit nilai hore cluster 3 hebat 
+
+## Harapan Kuliah 
+IPK DIATAS 3.5 (AMIIN) BANYAK UPGRADE DIRI SENDIRI SELAMA KULIAH, MINIMAL 1 KALI JUARA DI PERLOMBAAN YANG DIIKUTI, TIDAK ALPHA, FRESH GRADUATE LANGSUNG DAPAT KERJA, LULUS TEPAT WAKTU,KALAU BISA BIAYA UKT PAKAI UANG SENDIRI
